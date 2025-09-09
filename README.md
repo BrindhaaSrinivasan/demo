@@ -5,3 +5,4 @@ My school teacher are very nice and soft.my schooling at kongu vellalar matric h
 my father name is Srinivasan .He is worked in private limited company.My mother name is Poonkuili.she is a homemaker and I have one younger sister Her name is Harshikaa.she is studying in 6 stander in kongu vellelar matric he sec school.
 I have no role model in my life But my father is my fav person in my life because he is more suppotive person in my life.
 he is more encourage me in many activies .i become the software developer like my uncle.
+your teaching is very nice sir not strict.continue teaching like this.
